@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **xansaa18@gmail.com**
 
-- ⚡ Fun fact **I play video game , basketball and i love travel.**
+- ⚡ Fact for me **I play video game , basketball and i love travel.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
